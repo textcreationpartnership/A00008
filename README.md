@@ -33,6 +33,14 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. CONSIDERATIONS
+VPON THE TREATY
+OF MARRIAGE BETWEEN
+ENGLAND
+AND SPAIN.
+
+    _ The Answer
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
